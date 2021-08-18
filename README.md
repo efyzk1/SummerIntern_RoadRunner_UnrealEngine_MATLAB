@@ -20,5 +20,5 @@ https://www.dropbox.com/s/wemxb0atsqeez7i/UnrealEditorProject.zip?dl=0
 
 https://www.mediafire.com/file/cz32g4j16q963f3/roadrunnerExportAssets.zip/file
 
-All videos can be found in the playlist below:
+All videos can be found in the playlist:
 https://youtube.com/playlist?list=PL1eAqdh8ebgf_tJdqBYjVD2-QdE30AoGG
